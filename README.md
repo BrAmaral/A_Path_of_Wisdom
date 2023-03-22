@@ -53,3 +53,4 @@ Let these words of wisdom sink into your soul.
 49. Absorb the best of the many paths, and also be mindful of their weaknesses (sides of the same coin). Then, carve your own, improved, version. Dominate the art of the oposite angles. Do not be hostage of a path, transcend it and see the core of everything.
 50. Hero is the one who sacrifices himself for a greater cause in a selfless, heroic action.
 51. In your craft, forge legendary... supernatural works and wonders. In spirit, resemble a firm, mighty mountain.
+52. Do not be constrained by labels, just be.
